@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm Dipendra
 
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 - 
